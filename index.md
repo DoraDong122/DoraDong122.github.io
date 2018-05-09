@@ -4,4 +4,4 @@
 
 
 
-### Coming soon
+### I prefer goodreader.｡:.ﾟヽ(｡◕‿◕｡)ﾉﾟ.:｡+ﾟ
